@@ -10,4 +10,3 @@
     Acknowledge that I do not include everyone I meet or know personally as my friend nor wish to be named as such if I don't trust you well enough.
 
  
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
