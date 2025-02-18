@@ -1,9 +1,21 @@
-![john-wick](https://github.com/user-attachments/assets/28bc5c1a-26e5-41b1-9ec7-67f434966beb)
+![index8](https://github.com/user-attachments/assets/06a3fe83-1b66-4fd8-8621-77184e83d1b5)
 
 I may or may not go by many aliases, however my most prominent is **Veil**. Please address me as such.
 
-If you wish to interact in game or online, be aware that I may come off as disinterested and unapproachable in our first interaction.
+Fill free to engage in conversation or to simply ask for some company unless if I'm alone. I won't bite.
 
-Acknowledge that I do not include everyone I meet or know personally as my friend nor wish to be named as such if I don't trust you well enough.
+I do not include everyone I meet or know personally as my friend nor wish to be named as such if I don't trust you well enough. This includes off the platform.
 
- 
+Majority of my time, I roam within the PonyTown **Bakery**, **Call of Duty**, and **Sonic the Hedgehog** areas intending to wait for my ingame companions, or to move away from crowded areas. Something that most should be aware of.
+
+engaged w/ my prominent zhenikh 🪻
+***
+
+*Current PonyTown Mutuals*
+
+- **Asher** ( [@sunrivse](https://github.com/sunrivse) )
+***
+ *Available Socials*
+- **Discord**: ( `@grim.ware` )
+- **BlueSky**: ( `@̶g̶r̶i̶m̶w̶a̶r̶e̶.̶b̶s̶k̶y̶.̶s̶o̶c̶i̶a̶l` )
+- **Carrd**: ( `@-` )
