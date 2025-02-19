@@ -17,5 +17,5 @@ engaged w/ my prominent zhenikh 🪻
 ***
  *Available Socials*
 - **Discord**: ( `@grim.ware` )
-- **BlueSky**: ( `@̶g̶r̶i̶m̶w̶a̶r̶e̶.̶b̶s̶k̶y̶.̶s̶o̶c̶i̶a̶l` )
+- **BlueSky**: ( `@grimware.bsky.social` )
 - **Carrd**: ( `@-` )
